@@ -1,8 +1,8 @@
 # ISAAC SONGER - EULOGY
 
 
-\[INTRODUCTION - SECTION\]
---------------------------
+## [INTRODUCTION - SECTION]
+
 
 Thank you everyone for being here to help us celebrate the life of my brother Isaac. This week is a tough week for my family. But, in spite of the sadness, it's a privilege to say a few words about my brother.
 
@@ -25,12 +25,13 @@ I can tell by the looks on your faces that you saw the samething I saw — that 
 Isaac’s smile said everything about him
 
 
-\[REFLECTION STORY\] - Life is an Echo
---------------------------------------
+## [REFLECTION STORY\] - Life is an Echo
 
-A son and his father were walking in the mountains.
+> A son and his father were walking in the mountains. Suddenly, his son falls, hurts himself and screams: 
 
-Suddenly, his son falls, hurts himself and screams: "AAAhhhhhhhhhhh!!!" To his surprise, he hears the voice repeating, somewhere in the mountain: "AAAhhhhhhhhhhh!!!"
+"AAAhhhhhhhhhhh!!!" 
+
+To his surprise, he hears the voice repeating, somewhere in the mountain: "AAAhhhhhhhhhhh!!!"
 
 Curious, he yells: "Who are you?"
 
