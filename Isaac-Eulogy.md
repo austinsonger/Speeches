@@ -157,7 +157,9 @@ These are great lessons - lessons I hope all of us will remember and take to hea
 
 And finally.
 
-We all suffer some unavoidable losses. People we love die, close friends move away, and, despite our best efforts, some of the ventures we undertake don’t work out. What’s a person to do when he or she suffers a bad break? We can complain, but fussing doesn’t change anything. If we accept our losses, we grieve by crying about them. Crying doesn’t help either. That’s why we cry – because nothing helps. But grieving does allow us to bury our dead and to get beyond our disappointments. This leaves room in our hearts that we may be able to fill with love for someone else or hope for some new undertaking, but we cannot hurry our pain to rush our willingness to begin anew. We need to move on in our lives in search of whatever is available that makes us happy, but a major loss leaves a hole in our hearts – a hole that can never be completely refilled.
+We all suffer some unavoidable losses. People we love die, close friends move away, and, despite our best efforts, some of the ventures we undertake don’t work out. What’s a person to do when he or she suffers a bad break? We can complain, but fussing doesn’t change anything. If we accept our losses, we grieve by crying about them. Crying doesn’t help either. That’s why we cry – because nothing helps. But grieving does allow us to bury our dead and to get beyond our disappointments. 
+
+This leaves room in our hearts that we may be able to fill with love for someone else or hope for some new undertaking, but we cannot hurry our pain to rush our willingness to begin anew. We need to move on in our lives in search of whatever is available that makes us happy, but a major loss leaves a hole in our hearts – a hole that can never be completely refilled.
 
 
 #### \[PAUSE\]
