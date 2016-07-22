@@ -29,31 +29,35 @@ Isaac’s smile said everything about him
 
 > A son and his father were walking in the mountains. Suddenly, his son falls, hurts himself and screams: 
 
-"AAAhhhhhhhhhhh!!!" 
+> "AAAhhhhhhhhhhh!!!" 
 
-To his surprise, he hears the voice repeating, somewhere in the mountain: "AAAhhhhhhhhhhh!!!"
+> To his surprise, he hears the voice repeating, somewhere in the mountain: "AAAhhhhhhhhhhh!!!"
 
-Curious, he yells: "Who are you?"
+> Curious, he yells: "Who are you?"
 
-He receives the answer: "Who are you?" Angered at the response, he screams: "Coward!" He receives the answer: "Coward!"
+> He receives the answer: "Who are you?" Angered at the response, he screams: "Coward!" He receives the answer: "Coward!"
 
-He looks to his father and asks: "What's going on?" The father smiles and says: "My son, pay attention." And then he screams to the mountain: "I admire you!" The voice answers: "I admire you!"
+> He looks to his father and asks: 
 
-Again the man screams: "You are a champion!" The voice answers: "You are a champion!"
+> "What's going on?" The father smiles and says: "My son, pay attention." 
 
-The boy is surprised, but does not understand.
+> And then he screams to the mountain: "I admire you!" The voice answers: "I admire you!"
 
-Then the father explains: "People call this ECHO, but really this is LIFE. It gives you back everything you say or do.
+> Again the man screams: "You are a champion!" The voice answers: "You are a champion!"
 
-Our life is simply a reflection of our actions.
+> The boy is surprised, but does not understand.
 
-If you want more love in the world, create more love in your heart.
+> Then the father explains: "People call this ECHO, but really this is LIFE. It gives you back everything you say or do.
 
-If you want more competence in your team, improve your competence. This relationship applies to everything, in all aspects of life;
+> Our life is simply a reflection of our actions.
 
-Life will give you back everything you have given to it."
+> If you want more love in the world, create more love in your heart.
 
-YOUR LIFE IS NOT A COINCIDENCE. IT'S A REFLECTION OF YOU!
+> If you want more competence in your team, improve your competence. This relationship applies to everything, in all aspects of life;
+
+> Life will give you back everything you have given to it."
+
+> YOUR LIFE IS NOT A COINCIDENCE. IT'S A REFLECTION OF YOU!
 
 ### \[STORY END\]
 
