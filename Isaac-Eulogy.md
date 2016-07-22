@@ -27,15 +27,24 @@ Isaac’s smile said everything about him
 
 ## [REFLECTION STORY\] - Life is an Echo
 
-> A son and his father were walking in the mountains. Suddenly, his son falls, hurts himself and screams: 
+A son and his father were walking in the mountains. Suddenly, his son falls, hurts himself and screams: 
 
 > "AAAhhhhhhhhhhh!!!" 
 
-> To his surprise, he hears the voice repeating, somewhere in the mountain: "AAAhhhhhhhhhhh!!!"
+To his surprise, he hears the voice repeating, somewhere in the mountain: 
 
-> Curious, he yells: "Who are you?"
+> "AAAhhhhhhhhhhh!!!"
 
-> He receives the answer: "Who are you?" Angered at the response, he screams: "Coward!" He receives the answer: "Coward!"
+Curious, he yells: 
+
+> "Who are you?"
+
+He receives the answer: 
+> "Who are you?" 
+Angered at the response, he screams: 
+> "Coward!" 
+He receives the answer: 
+> "Coward!"
 
 > He looks to his father and asks: 
 
