@@ -95,7 +95,11 @@ Then the father explains:
 
 He loved basketball, football, fishing, and politics. He loved life and believed in making the most of it. Spending time with my brother was rarely boring. His energy and his smile were contagious and he was the type of person you enjoyed hanging with.
 
-Isaac looked up to President Obama and one of the President's quotes which I think is appropriate for today is "If you’re walking down the right path and you’re willing to keep walking, eventually you’ll make progress." Isaac made progress in his life by making sure he stayed on the right path. For Isaac, it was a path of tolerance, enthusiasm\*\*, and energy.
+Isaac looked up to President Obama and one of the President's quotes which I think is appropriate for today is 
+
+> "If you’re walking down the right path and you’re willing to keep walking, eventually you’ll make progress." 
+
+Isaac made progress in his life by making sure he stayed on the right path. For Isaac, it was a path of tolerance, enthusiasm\*\*, and energy.
 
 
 #### \[PAUSE\]
@@ -109,11 +113,19 @@ Isaac’s biggest fault was also his greatest asset. He was **tolerant**. He nev
 
 ## [ENTHUSIASM - SECTION\]
 
-Isaac didn't believe in sitting on the sidelines and watching life. As his hero Michael Jordan has said: "Some people want it to happen, some wish it would happen, and others make it happen." Isaac was the kind of guy that no matter what issues he faced, he tried to continue and make things happen for himself
+Isaac didn't believe in sitting on the sidelines and watching life. As his hero Michael Jordan has said: 
+
+> "Some people want it to happen, some wish it would happen, and others make it happen." 
+
+Isaac was the kind of guy that no matter what issues he faced, he tried to continue and make things happen for himself
 
 He was passionate in his beliefs and always tried to remain positive about life no matter the road blocks that came his way.
 
-#### And if he suffered a setback, he didn't let that stop him. His idol Michael Jordan has a quote "The key to success is failure." If you don't succeed at first, learn the lessons from it, and press on. Don't give up. Don't quit.
+#### And if he suffered a setback, he didn't let that stop him. His idol Michael Jordan has a quote 
+
+> "The key to success is failure." 
+
+If you don't succeed at first, learn the lessons from it, and press on. Don't give up. Don't quit.
 
 
 #### \[PAUSE\]
@@ -133,7 +145,9 @@ Bad things can and will happen, but stay positive. Be the candle in the dark. Be
 
 My brother Isaac was an extraordinary man. His life has left each of us with some great examples -- particularly when it comes to being tolerant, being happy with life, and continuing to fight.
 
-You may be discouraged right now and feeling that circumstances and challenges are getting the best of you. From the basket player Michael Jordan. "You must expect great things of yourself before you can do them."
+You may be discouraged right now and feeling that circumstances and challenges are getting the best of you. From the basket player Michael Jordan. 
+
+> "You must expect great things of yourself before you can do them."
 
 Expect great things from yourself. Expect great things from life. Expect great things from other people.
 
@@ -152,6 +166,8 @@ We all suffer some unavoidable losses. People we love die, close friends move aw
 
 Please leave today celebrating the life that Issac was able to live.
 
-Please live today with your head up high, because knowing Isaac... He would want all of his family friends to continue living in the now, because to often people dwell on the past and worry about the future, so for Isaac please live in the now.
+Please live today with your head up high, because knowing Isaac... 
+
+He would want all of his family friends to continue living in the now, because to often people dwell on the past and worry about the future, so for Isaac please live in the now.
 
 Thank You All For Coming.
