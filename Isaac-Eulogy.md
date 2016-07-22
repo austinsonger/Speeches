@@ -40,31 +40,46 @@ Curious, he yells:
 > "Who are you?"
 
 He receives the answer: 
+
 > "Who are you?" 
+
 Angered at the response, he screams: 
+
 > "Coward!" 
+
 He receives the answer: 
+
 > "Coward!"
 
-> He looks to his father and asks: 
+He looks to his father and asks: 
 
-> "What's going on?" The father smiles and says: "My son, pay attention." 
+> "What's going on?" 
 
-> And then he screams to the mountain: "I admire you!" The voice answers: "I admire you!"
+The father smiles and says: 
 
-> Again the man screams: "You are a champion!" The voice answers: "You are a champion!"
+> "My son, pay attention." 
 
-> The boy is surprised, but does not understand.
+And then he screams to the mountain: 
 
-> Then the father explains: "People call this ECHO, but really this is LIFE. It gives you back everything you say or do.
+> "I admire you!" 
 
-> Our life is simply a reflection of our actions.
+The voice answers: 
 
-> If you want more love in the world, create more love in your heart.
+> "I admire you!"
 
-> If you want more competence in your team, improve your competence. This relationship applies to everything, in all aspects of life;
+Again the man screams: 
 
-> Life will give you back everything you have given to it."
+> "You are a champion!" 
+
+The voice answers: 
+
+> "You are a champion!"
+
+The boy is surprised, but does not understand.
+
+Then the father explains: 
+
+>"People call this ECHO, but really this is LIFE. It gives you back everything you say or do. Our life is simply a reflection of our actions. If you want more love in the world, create more love in your heart. If you want more competence in your team, improve your competence. This relationship applies to everything, in all aspects of life; Life will give you back everything you have given to it."
 
 > YOUR LIFE IS NOT A COINCIDENCE. IT'S A REFLECTION OF YOU!
 
