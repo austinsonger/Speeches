@@ -1,5 +1,9 @@
 # ISAAC SONGER - EULOGY
 
+## In Loving Memory of Isaac Songer
+
+#### September 19, 1984 - June 22nd, 2016
+
 
 ## [INTRODUCTION - SECTION]
 
